@@ -1,0 +1,2 @@
+# predikatlulus
+PREDIKAT LULUS
